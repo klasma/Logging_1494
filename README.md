@@ -1,0 +1,1 @@
+# Lidköpings kommun
